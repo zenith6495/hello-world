@@ -1,2 +1,2 @@
 # hello-world
-Just another repository
+Hi I'm Zenith, that's all fuck off
